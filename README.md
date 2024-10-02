@@ -1,6 +1,7 @@
 <b>HIIII my name is Wolfie and you're probably here bc you've seen me on PonyTown :0</b>
 <br> So let me tell you a bit about myself! Here are some of my likes and dislikes and INT/DNI criteria :3
-<br> also PSA for y'all bc some ppl get upset at these, I AM A FURRY AND THERIAN. If you don't fw that then please just leave and don't try to argue w me RAHHH
+<br>
+<br> Also! a little PSA for y'all bc some ppl get upset at these, I'm a furry & therian. If you don't fw that then please just leave and don't try to argue w me RAHHH
 <br>
 <b>LIKES/INT: Overwatch, Resident Evil, Dragon Ball, cosplay, art/drawing, k-pop/v-kei/rock/metal, animals!!!</b>
 
