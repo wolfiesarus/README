@@ -1,5 +1,5 @@
 <b>HIIII my name is Wolfie and you're probably here bc you've seen me on PonyTown :0</b>
-So let me tell you a bit about myself! Here are some of my likes and dislikes and INT/DNI criteria :3
+<ins> So let me tell you a bit about myself! Here are some of my likes and dislikes and INT/DNI criteria :3
 
 also PSA for y'all bc some ppl get upset at these, I AM A FURRY AND THERIAN. If you don't fw that then please just leave and don't try to argue w me RAHHH
 
