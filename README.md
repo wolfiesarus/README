@@ -7,13 +7,13 @@
 <b>LIKES/INT: Overwatch, Resident Evil, Dragon Ball, cosplay, art/drawing, k-pop/v-kei/rock/metal, animals!!!</b>
 
 <b>DISLIKES/DNI: Basic DNI criteria here, i esp hate bullying and aniaml cruelty. That's it really-<b>
-
-
-
-
-
-
-
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
 <img src="https://gifcity.carrd.co/assets/images/gallery50/331039be.png?v=dc8076d6" alt="mmm sour patch kids"> <img src="https://gifcity.carrd.co/assets/images/gallery131/0369c4e4.jpg?v=dc8076d6" alt="i didn't loose my mind, i sold it on EBay">
-<ins>
+<br>
 <img src="https://gifcity.carrd.co/assets/images/gallery18/3c5008c4.gif?v=dc8076d6" alt="it's that goblin!"> <img src="https://gifcity.carrd.co/assets/images/gallery18/cb0f5b2c.gif?v=dc8076d6" alt="i glow in the dark">
