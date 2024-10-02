@@ -4,7 +4,7 @@
 <br> Also! a little PSA for y'all bc some ppl get upset at these, I'm a furry & therian. If you don't fw that then please just leave and don't try to argue w me RAHHH
 <br>
 <br>
-<b>LIKES/INT: Overwatch, Resident Evil, Dragon Ball, cosplay, art/drawing, k-pop/v-kei/rock/metal, animals!!!</b>
+<b>LIKES/INT: Overwatch, Resident Evil, Dragon Ball, cosplay, art/drawing, k-pop/v-kei/rock/metal, animals!!!</b> <img src="https://gifcity.carrd.co/assets/images/gallery97/efdc400b.gif?v=dc8076d6" alt="dancing kitty icon with heart above head">
 
 <b>DISLIKES/DNI: Basic DNI criteria here, i esp hate bullying and aniaml cruelty. That's it really-<b>
 <br>
