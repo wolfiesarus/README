@@ -15,5 +15,7 @@
 <br>
 <br>
 <img src="https://gifcity.carrd.co/assets/images/gallery50/331039be.png?v=dc8076d6" alt="mmm sour patch kids"> <img src="https://gifcity.carrd.co/assets/images/gallery131/0369c4e4.jpg?v=dc8076d6" alt="i didn't loose my mind, i sold it on EBay">
+<img src="https://gifcity.carrd.co/assets/images/gallery405/93b81a69.png?v=dc8076d6" alt="Nintendo"> <img src="https://gifcity.carrd.co/assets/images/gallery59/d06f7de3.jpg?v=dc8076d6" alt="i am mentally very violent">
 <br>
 <img src="https://gifcity.carrd.co/assets/images/gallery18/3c5008c4.gif?v=dc8076d6" alt="it's that goblin!"> <img src="https://gifcity.carrd.co/assets/images/gallery18/cb0f5b2c.gif?v=dc8076d6" alt="i glow in the dark">
+<img src="https://gifcity.carrd.co/assets/images/gallery15/f330bee7.png?v=dc8076d6" alt="i eat glow sticks"> <img src="https://gifcity.carrd.co/assets/images/gallery15/fc13214a.gif?v=dc8076d6" alt="STARGAZER">
